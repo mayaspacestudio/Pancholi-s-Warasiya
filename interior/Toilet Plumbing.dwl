@@ -1,3 +1,0 @@
-prasa
-LAPTOP-OAP0P2CD 
-28 October 2025  12:26:05
